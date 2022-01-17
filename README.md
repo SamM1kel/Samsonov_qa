@@ -1,1 +1,0 @@
-# Samsonov_qa
